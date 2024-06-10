@@ -2,8 +2,8 @@
 Anggota
 
 Abrar Naufal Fadhillah Cut 
-Muhammad AryaSatya 
-Muhammad Alif Akbar
+, Muhammad AryaSatya 
+, Muhammad Alif Akbar
 
  Link Google Drive
 
