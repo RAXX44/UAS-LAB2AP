@@ -1,8 +1,8 @@
 # UAS-LAB2AP KELOMPOK MUST A NICE
-Kelompok Must A Nice
+Anggota
 
-Abrar Naufal Fadhillah Cut
-AryaSatya 
+Abrar Naufal Fadhillah Cut 
+Muhammad AryaSatya 
 Muhammad Alif Akbar
 
  Link Google Drive
